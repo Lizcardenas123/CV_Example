@@ -12,7 +12,7 @@
 
 ## 🏢 Experiencia Laboral
 ### **Empresa Inversiones y operaciones del sur** _(Mayo 7 - Noviembre 6)_
-- Puesto ocupado y descripción breve.
+- Apoyo en la planificación y ejecución de campañas de marketing y Durante mi experiencia laboral, desempeñé un papel fundamental en el desarrollo e implementación de estrategias de marketing efectivas. Mis responsabilidades incluyeron, Cordar la creación de contenido para diversos canales, incluyendo redes sociales, correo electrónico y publicidad online.
 
 ## 🎓 Educación
 ### **SENA** _(2023 - 2025)_
